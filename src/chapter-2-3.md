@@ -1,5 +1,3 @@
-Strategies for Improving Time Management
-==================================================================================
 
 Effective time management is essential to achieving personal and professional goals. In this chapter, we will explore strategies for improving time management.
 

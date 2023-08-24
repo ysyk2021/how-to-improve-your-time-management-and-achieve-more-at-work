@@ -1,5 +1,3 @@
-Strategies for Managing Distractions and Interruptions
-==========================================================================================================
 
 Distractions and interruptions can have a significant impact on productivity and effectiveness. In this chapter, we will discuss effective strategies for managing distractions and interruptions.
 

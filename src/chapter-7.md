@@ -1,5 +1,3 @@
-Chapter 7: Delegating and Outsourcing Tasks
-===========================================
 
 Delegating and outsourcing tasks is an essential component of effective time management. In this chapter, we will discuss the importance of delegating and outsourcing tasks, strategies for doing so effectively, and how to use delegation and outsourcing frameworks to optimize your workflow.
 

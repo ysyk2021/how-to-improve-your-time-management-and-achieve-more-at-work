@@ -1,5 +1,3 @@
-Chapter 4: Setting Goals and Priorities
-=======================================
 
 Setting goals and priorities is a key component of effective time management. In this chapter, we will discuss the role of goals and priorities in effective time management, strategies for setting goals and priorities, and how to use goal-setting and priority matrix techniques to optimize your workflow.
 

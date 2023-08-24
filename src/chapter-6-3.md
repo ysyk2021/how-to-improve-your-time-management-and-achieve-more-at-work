@@ -1,5 +1,3 @@
-Using Time-Management Apps and Communication Strategies
-===========================================================================================================
 
 Distractions and interruptions can be major obstacles to effective time management. In this chapter, we will discuss how to manage distractions and interruptions through the use of time-management apps and communication strategies.
 

@@ -1,5 +1,3 @@
-The Impact of Time Management on Personal and Professional Development
-================================================================================================================
 
 Time management is a critical skill for personal and professional development. In this chapter, we will discuss the impact of time management on personal and professional development.
 

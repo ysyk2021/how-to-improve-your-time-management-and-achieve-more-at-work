@@ -1,5 +1,3 @@
-Strategies for Setting Goals and Priorities
-====================================================================================
 
 Setting effective goals and priorities is critical to achieving personal and professional success. In this chapter, we will explore strategies for setting goals and priorities that can optimize time management skills.
 

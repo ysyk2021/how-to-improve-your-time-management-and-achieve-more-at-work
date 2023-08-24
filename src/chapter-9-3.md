@@ -1,5 +1,3 @@
-Demonstrating Leadership and Efficiency in the Workplace
-==========================================================================================================================
 
 Applying time management skills to career advancement can help you demonstrate leadership and efficiency in the workplace. In this chapter, we will discuss how time management skills can help you establish yourself as a leader and increase your efficiency in the workplace.
 

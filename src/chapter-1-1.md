@@ -1,5 +1,3 @@
-Importance of Time Management in Achieving More at Work
-================================================================================
 
 Effective time management is essential to achieving more at work. In this chapter, we will explore the importance of time management in achieving success in the workplace.
 

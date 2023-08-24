@@ -1,5 +1,3 @@
-Using Productivity Tools and Time-Blocking Techniques
-=========================================================================================
 
 Planning and scheduling are critical components of effective time management. In this chapter, we will explore the use of productivity tools and time-blocking techniques for planning and scheduling.
 

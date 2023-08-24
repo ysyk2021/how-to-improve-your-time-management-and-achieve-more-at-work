@@ -1,5 +1,3 @@
-The Role of Managing Distractions and Interruptions in Effective Time Management
-====================================================================================================================================
 
 Managing distractions and interruptions is critical for effective time management. In this chapter, we will discuss the role of managing distractions and interruptions in effective time management and strategies for doing so.
 

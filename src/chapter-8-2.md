@@ -1,5 +1,3 @@
-Analyzing Personal and Team Productivity Data and KPIs
-====================================================================================================
 
 Analyzing personal and team productivity data and key performance indicators (KPIs) is an effective way to measure time management success. In this chapter, we will discuss how to analyze personal and team productivity data and KPIs effectively.
 

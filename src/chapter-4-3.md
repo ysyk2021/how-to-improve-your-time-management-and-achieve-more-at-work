@@ -1,5 +1,3 @@
-Using Goal-Setting and Priority Matrix Techniques
-==========================================================================================
 
 Goal-setting and priority matrix techniques are effective strategies for setting goals and priorities. In this chapter, we will discuss how to use these techniques effectively.
 

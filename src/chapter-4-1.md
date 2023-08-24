@@ -1,5 +1,3 @@
-The Role of Goals and Priorities in Effective Time Management
-======================================================================================================
 
 Setting goals and priorities is a critical step in effective time management. In this chapter, we will explore the importance of setting goals and priorities, how to set effective goals and priorities, and the benefits of doing so.
 

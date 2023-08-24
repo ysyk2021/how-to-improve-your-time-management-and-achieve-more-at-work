@@ -1,5 +1,3 @@
-Chapter 9: Applying Time Management Skills to Career Advancement
-================================================================
 
 Effective time management skills are highly valued by employers and can lead to career advancement opportunities. In this chapter, we will discuss the benefits of applying time management skills to your career advancement, strategies for doing so, and how to demonstrate leadership and efficiency in the workplace.
 

@@ -1,5 +1,3 @@
-Chapter 3: Analyzing Your Current Time Usage
-============================================
 
 Analyzing your current time usage is a critical step in improving time management skills. In this chapter, we will explore the importance of analyzing your current time usage, strategies for analyzing your current time usage, and using time-tracking tools and prioritization techniques.
 

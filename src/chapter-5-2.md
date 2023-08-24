@@ -1,5 +1,3 @@
-Strategies for Planning and Scheduling
-==========================================================================
 
 Planning and scheduling are essential for effective time management and productivity. In this chapter, we will discuss effective strategies for planning and scheduling.
 

@@ -1,5 +1,3 @@
-Chapter 6: Managing Distractions and Interruptions
-==================================================
 
 Managing distractions and interruptions is crucial for effective time management. In this chapter, we will discuss the role of managing distractions and interruptions in effective time management, strategies for doing so effectively, and how to use time-management apps and communication strategies to minimize their impact.
 

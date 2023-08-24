@@ -1,5 +1,3 @@
-Chapter 5: Planning and Scheduling
-==================================
 
 Planning and scheduling are essential components of effective time management. In this chapter, we will discuss the importance of planning and scheduling, strategies for doing so effectively, and how to use productivity tools and time-blocking techniques to optimize your schedule.
 
