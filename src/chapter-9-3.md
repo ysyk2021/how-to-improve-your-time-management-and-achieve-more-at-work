@@ -1,5 +1,4 @@
-Chapter 8: Demonstrating Leadership and Efficiency in the Workplace
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the intersection of effective time management, leadership, and workplace efficiency. You'll learn how to harness your time management skills to demonstrate leadership qualities and enhance overall workplace efficiency.
 

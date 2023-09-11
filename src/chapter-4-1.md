@@ -1,5 +1,4 @@
-Chapter 2: The Role of Goals and Priorities in Effective Time Management
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the fundamental role that setting clear goals and priorities plays in achieving effective time management. Understanding how to establish, prioritize, and align your goals can significantly enhance your ability to make the most of your time and accomplish more at work.
 

@@ -1,5 +1,4 @@
-Chapter 4: Strategies for Setting Goals and Priorities
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore a range of effective strategies for setting clear goals and priorities. Mastering these techniques will empower you to make informed decisions, optimize your time, and achieve more at work.
 

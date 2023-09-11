@@ -1,5 +1,4 @@
-Chapter 6: The Role of Managing Distractions and Interruptions in Effective Time Management
-===========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the critical role that managing distractions and interruptions plays in achieving effective time management. Distractions and interruptions are common productivity killers, and mastering the techniques to handle them will significantly enhance your ability to make the most of your time at work.
 

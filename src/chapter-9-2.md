@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Using Time Management Skills to Advance Your Career
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into practical strategies for leveraging your time management skills to propel your career forward, demonstrating how effective time management can be a catalyst for professional growth and success.
 

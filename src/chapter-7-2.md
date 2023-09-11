@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Delegating and Outsourcing Tasks
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore advanced strategies for effectively delegating and outsourcing tasks to optimize your time management skills and achieve greater productivity at work.
 

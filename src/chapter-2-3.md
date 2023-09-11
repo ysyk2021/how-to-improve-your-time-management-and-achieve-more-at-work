@@ -1,5 +1,4 @@
-Chapter 2: Strategies for Improving Time Management
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into a variety of effective strategies to enhance your time management skills. These techniques are essential for optimizing your productivity and achieving more at work.
 

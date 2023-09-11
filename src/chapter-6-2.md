@@ -1,5 +1,4 @@
-Chapter 4: Strategies for Managing Distractions and Interruptions
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into effective strategies for managing distractions and interruptions to improve your time management skills and achieve more at work. Distractions and interruptions are common challenges that can hinder productivity, but with the right techniques, you can regain control over your time and stay focused on your tasks.
 

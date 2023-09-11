@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Planning and Scheduling
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the art of planning and scheduling, essential components of effective time management that can help you maximize productivity and achieve more at work.
 

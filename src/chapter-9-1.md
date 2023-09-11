@@ -1,5 +1,4 @@
-Chapter 6: The Benefits of Applying Time Management Skills to Career Advancement
-================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant advantages of applying time management skills to advance your career, highlighting how effective time management can propel you toward success in the workplace.
 

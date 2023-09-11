@@ -1,5 +1,4 @@
-Chapter 9: Analyzing Personal and Team Productivity Data and KPIs
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the crucial practice of analyzing productivity data and Key Performance Indicators (KPIs) both at the individual and team levels. You'll discover how data-driven insights can significantly impact your time management and overall workplace performance.
 

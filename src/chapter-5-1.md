@@ -1,5 +1,4 @@
-Chapter 2: The Importance of Planning and Scheduling in Effective Time Management
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the pivotal role that planning and scheduling play in enhancing time management skills and achieving greater productivity at work.
 

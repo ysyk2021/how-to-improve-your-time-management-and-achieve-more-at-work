@@ -1,5 +1,4 @@
-Chapter 3: Using Goal-Setting and Priority Matrix Techniques
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the powerful strategies of goal-setting and priority matrix techniques to enhance your time management skills and achieve more at work. These techniques provide a structured approach to setting objectives, making informed decisions, and optimizing your daily tasks.
 
